@@ -1,2 +1,2 @@
 #HYEONU SHIN
-:smile: 봄 *:light:빛*, 여름 *:rain:비*, 가을 *:fall:벼*, 겨울 *:moon:밤*
+:smile: 봄 *빛*, 여름 *비*, 가을 *벼*, 겨울 *:moon:밤*
